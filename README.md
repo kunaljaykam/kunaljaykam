@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @kunaljaykam
-- 👀 I’m 
+- and I Love to code
 -
